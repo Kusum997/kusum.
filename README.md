@@ -84,4 +84,15 @@ today was the speech by **Dr. SB singh** and **Dr. Pushpinder** after a small br
 
  **DAY11(24th of july,wednesday)**
 
+ on this day we get motivated by the story of IOC **Gauravdeep singh Sir** and he also introduced us with his team, most of the students were from our college after that coordinator of CML **Er.Lakhveer Sir** introduced us to CML and also told us about NPTEL, after a short break we were introduced to causmic club by our seniors 
+
+
+ **Day12(25th of July,Thursday)**
+
+
+ there was a class of mathematics by **Rajbir Kaur Mam**, she taught us integration then after that we had a first basic of chemistry classes by **Mandeep Kaur Mam** then after the break we given a test of mathematics of CSE and IT students and that's it for today 
+
+ **Day13(26th July, Friday)**
+
+ its the last day of our **Student Induction Programme** 
  

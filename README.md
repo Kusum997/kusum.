@@ -95,4 +95,16 @@ today was the speech by **Dr. SB singh** and **Dr. Pushpinder** after a small br
  **Day13(26th July, Friday)**
 
  its the last day of our **Student Induction Programme** 
+ And today was the best experience ever as meditation counsellor **Dr. Kalwarpreet K Bhatt** mam arrived and told us the facts and benefits of meditation and also taught us that hoe to do meditation,  she is also a homeopatheic practitioner after that there was anumber of performances like singing and dancing by our batchmates and seniors which was conducted by cultural comittie of our college after that there was a role play also by NSS team for the awareness of drugs then prizes were distributed to the students who participated in the competition and thus we were free to go 
+ thats it now our regular classes will be conducted from monday 29th of july 
+
+
+
+ **FEEDBACK TO INDUCTION PROGRAMME**
+
+ THESE 13 DAYS OF OUR INDUCTION PROGRAMME WAS VERY LOVELY EXPERIENCE FOR ME. I ENJOYED A LOT THIS PROGRAMME AND LEARN ABOUT THE REAL LIFE BY OUR MOTIVATINAL SPEAKERS VISITED IN OUR COLLEGE OUR PRINCIPAL SIR TOLD US ABOUT THE ARRANGEMENT TEAM OF FACULTY STAFF AND OUR SENIORS AND I FEEL GRATEFUL FOR THEM AS THEY GIVEN THEIR BEST FOR OUR INDUCTION PROGRAMMEAND I CAME TO KNOW ABOUT EVERYTHINGH ABOUT THE COLLEGE AND THIS MAKES ME FEEL PROUD THAT I HAVE CHOSEN A BEST EVER INSTITUTION FOR MY BEST FUTURE 
+ AND I JUST WANNA SAY THANKYOU TO OUR OUR PRINCIPAL SIR , OUR TEACHERS AND SENIORS TO MAKE THIS INDUCTION PROGRAMME SUCCESSFUL FOR US 
+
+                                                                                                           THANKYOU SO MUCH
+ 
  
